@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome to Mike Connor War
 
 The main theme of this web site and project it to defeat evil technology which started to make my children like zombies since December, 2020.
 
